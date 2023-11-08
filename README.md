@@ -7,3 +7,12 @@ hmm gatau mo buat apa
 
 ## Gass
 apa lagii gatau
+
+## Ngeng
+apa ye
+
+## JengJeng
+raono
+
+## Ngueng
+apa lagi
