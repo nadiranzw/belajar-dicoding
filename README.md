@@ -4,3 +4,6 @@ buat apa yaa hari ini
 
 ## Lesgo
 hmm gatau mo buat apa
+
+## Gass
+apa lagii gatau
